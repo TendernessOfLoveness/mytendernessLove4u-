@@ -5,4 +5,7 @@
 
 21yo [ stop / dont  call(ing)  me  unc /mj larper  plx <3] 
 (ˆ ̳ ,  ̫,  ̳ˆ)"੭ bmf?? yr choicee<33 
-![Michael Jackson Chibi by RockGu12](https://pinimg.com)
+<p align="center">
+  <img src="https://pinimg.com" width="200" />
+</p>
+
